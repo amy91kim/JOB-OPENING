@@ -1,4 +1,4 @@
-# [UNEEDCOMMS](http://www.smartskin.co.kr) &middot;
+# [UNEEDCOMMS](http://www.smartskin.co.kr)
 안녕하세요 :) 
 세상에 없는 솔루션의 경험! 국내에서 가장 많은 모바일 쇼핑몰을 제공하고 관리하는, 모바일 쇼핑시장 업계 1위의 리딩컴퍼니 유니드컴즈입니다.
 
